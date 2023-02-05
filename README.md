@@ -1,4 +1,4 @@
-# ANTHROPOMETRIC-CHARACTERISTICS-IN-CHILDREN-OF-THE-REPUBLIC-OF-SAKHA-YAKUTIA
+# Children-anthropometric-charts-of-the-Republic-of-Sakha
 
 ---
 
